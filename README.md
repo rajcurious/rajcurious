@@ -4,7 +4,7 @@
 
 - Check out My PortFolio 
   https://rajcurious.github.io/MyPortfolio/
-- connect with me at
+- Connect with me at
   https://www.linkedin.com/in/raj-patel-954b7a165/
   
 
